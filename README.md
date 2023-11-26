@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tsmahdi
+- 👋 Hi, I’m Tarek
 - 👀 I’m interested in finding you your next challenge :)
 - 🌱 I’m currently learning more about tech.
 - 📫 Reach out to me via LinkedIn @tsmahdy
